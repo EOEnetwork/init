@@ -120,4 +120,8 @@ v0.1  | Virgo | init exchange of everyone
 
 
 
+---
+
+### 希望能给BTS改革带来一丝火光，如BTS竟成不了炬火：我便是唯一的光
+
 
